@@ -1,1 +1,2 @@
 Matthew Armstrong
+armstrm2@oregonstate.edu
